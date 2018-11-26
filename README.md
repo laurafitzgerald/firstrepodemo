@@ -12,4 +12,3 @@ Ich bin die Laura.
 Ich bin einunddreissig Jahre alt.
 
 
-Bonjour, je m'appelle Evan et j'ai seize ans et je suis enchantée de vous rencontrer. :)
